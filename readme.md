@@ -1,7 +1,7 @@
 # Cute Girl Thailand 
 
-- [University](##University)
-- [Glasses](##Glasses) 
+- [University](#University)
+- [Glasses](#Glasses) 
 
 -----
 ## University
@@ -9,6 +9,9 @@
 * Rangsit University - [RSU](#Rangsit-University)
 * Silpakorn University - [SU](#Silpakorn-University)
 * University of Phayao -[UP](#University-of-Phayao)
+* Chiang Mai University - [CMU](#Chiang-Mai-University)
+* Srinakharinwirot University - [SMU](#Srinakharinwirot-University)
+* Chulalongkorn University - [CU](#Chulalongkorn-University)
 
 ## King Mongkut's Institute of Technology Ladkrabang
 - [@wwadfun](https://www.instagram.com/wwadfun/)
@@ -18,9 +21,20 @@
 
 ## Silpakorn University
 - [@cookpavadee](https://www.instagram.com/cookpavadee/)
+- [@manasaproyy](https://www.instagram.com/manasaproyy/)
 
 ## University of Phayao
 - [@mingmarry](https://www.instagram.com/mingmarry/)
+
+## Chiang Mai University
+- [@ginygigy](https://www.instagram.com/ginygigy/)
+
+## Srinakharinwirot University
+- [gadd.de](https://www.instagram.com/gadd.de/)
+- [olivexree](https://www.instagram.com/olivexree/)
+
+## Chulalongkorn University
+- [ps.rinrada](https://www.instagram.com/ps.rinrada/)
 
 -----
 ## Glasses
