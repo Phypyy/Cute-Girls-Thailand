@@ -5,10 +5,10 @@
 
 -----
 ## University
-- [KMITL](###King Mongkut's Institute of Technology Ladkrabang)
-- [RSU](###Rangsit University)
-- [SU](###Silpakorn University)
-- [UP](###University of Phayao)
+- [KMITL](###KingMongkut'sInstituteofTechnologyLadkrabang)
+- [RSU](###Rangsit_University)
+- [SU](###SilpakornUniversity)
+- [UP](###UniversityofPhayao)
 
 
 -----
