@@ -1,10 +1,10 @@
 # Cute Girl Thailand 
 
-- [Glasses](*Glasses) 
+- [Glasses](###Glasses) 
 
-* KMITL
+### KMITL
 	* [@wwadfun](https://www.instagram.com/wwadfun/)
 
 
-* Glasses
+### Glasses
 	* [@wwadfun](https://www.instagram.com/wwadfun/)
