@@ -36,24 +36,24 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 
 ## Assumption University
 - [@thanyawee_](https://www.instagram.com/thanyawee_/) :boom:
-- [@beambeam.feverth](https://www.instagram.com/beambeam.feverth/) :eyeglasses:
+- [@beambeam.feverth](https://www.instagram.com/beambeam.feverth/) :fire::eyeglasses:
 
 ## Bangkok University
-- [@nn.nungnew](https://www.instagram.com/nn.nungnew/)
-- [@pakbungy](https://www.instagram.com/pakbungy/)
-- [@nakapus](https://www.instagram.com/nakapus/) :eyeglasses:
+- [@nn.nungnew](https://www.instagram.com/nn.nungnew/) :fire::fire:
+- [@pakbungy](https://www.instagram.com/pakbungy/) :fire:
+- [@nakapus](https://www.instagram.com/nakapus/) :fire::fire::eyeglasses:
 
 ## Burapha University
 - [@heyt1a](https://www.instagram.com/heyt1a/)
-- [@aumitkm](https://www.instagram.com/aumitkm/)
+- [@aumitkm](https://www.instagram.com/aumitkm/) :fire:
 
 ## Chulalongkorn University
-- [@ps.rinrada](https://www.instagram.com/ps.rinrada/)
+- [@ps.rinrada](https://www.instagram.com/ps.rinrada/) :fire:
 - [@jinnieyy](https://www.instagram.com/jinnieyy/) :eyeglasses:
 - [@ginkchonticha](https://www.instagram.com/ginkchonticha/)
 - [@mine.jt](https://www.instagram.com/mine.jt/) :eyeglasses:
-- [@imageswift13](https://www.instagram.com/imageswift13/) :eyeglasses:
-- [@inkwaruntorn](https://www.instagram.com/inkwaruntorn/)
+- [@imageswift13](https://www.instagram.com/imageswift13/) :fire::fire::eyeglasses: :triangular_flag_on_post:
+- [@inkwaruntorn](https://www.instagram.com/inkwaruntorn/) :fire::fire: :triangular_flag_on_post:
 
 ## Chiang Mai University
 - [@ginygigy](https://www.instagram.com/ginygigy/)
@@ -103,7 +103,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - [@olivexree](https://www.instagram.com/olivexree/)
 - [@ploycharr](https://www.instagram.com/ploycharr/)
 - [@toeyjarinporn](https://www.instagram.com/toeyjarinporn/)
-- [@lalieye](https://www.instagram.com/lalieye/) : Lalita Boon
+- Lalita Boon : [@lalieye](https://www.instagram.com/lalieye/)
 
 ## Superstar College of Arts 
 - [@smile.parada](https://www.instagram.com/smile.parada/) :eyeglasses:
