@@ -34,24 +34,24 @@ _This is the list of **Instragram** girls in Thailand. This list will show the c
 ## Bangkok University
 - [@nn.nungnew](https://www.instagram.com/nn.nungnew/)
 - [@pakbungy](https://www.instagram.com/pakbungy/)
-- [@nakapus](https://www.instagram.com/nakapus/)
+- [@nakapus](https://www.instagram.com/nakapus/) :eyeglasses:
 
 ## Burapha University
 - [@heyt1a](https://www.instagram.com/heyt1a/)
 
 ## Chulalongkorn University
 - [@ps.rinrada](https://www.instagram.com/ps.rinrada/)
-- [@jinnieyy](https://www.instagram.com/jinnieyy/)
+- [@jinnieyy](https://www.instagram.com/jinnieyy/) :eyeglasses:
 - [@ginkchonticha](https://www.instagram.com/ginkchonticha/)
-- [@mine.jt](https://www.instagram.com/mine.jt/)
-- [@imageswift13](https://www.instagram.com/imageswift13/)
+- [@mine.jt](https://www.instagram.com/mine.jt/) :eyeglasses:
+- [@imageswift13](https://www.instagram.com/imageswift13/) :eyeglasses:
 
 ## Chiang Mai University
 - [@ginygigy](https://www.instagram.com/ginygigy/)
 - [@omeorm](https://www.instagram.com/omeorm/)
 
 ## King Mongkut's Institute of Technology Ladkrabang
-- [@wwadfun](https://www.instagram.com/wwadfun/)
+- [@wwadfun](https://www.instagram.com/wwadfun/) :eyeglasses:
 
 ## King Mongkut's University of Technology North Bangkok
 - [@nenevader](https://www.instagram.com/nenevader/)
