@@ -5,46 +5,88 @@
 
 -----
 ## University
+* Assumption University - [ABAC](#Assumption-University)
+* Bangkok University - [BU](#Bangkok-University)
+* Burapha University - [BUU](#Burapha-University)
+* Chulalongkorn University - [CU](#Chulalongkorn-University)
+* Chiang Mai University - [CMU](#Chiang-Mai-University)
 * King Mongkut's Institute of Technology Ladkrabang - [KMITL](#King-Mongkut's-Institute-of-Technology-Ladkrabang)
+* King Mongkut's University of Technology North Bangkok - [KMUTNB](#King-Mongkut's-University-of-Technology-North-Bangkok)
+* King Mongkut's University of Technology Thonburi - [KMUTT](#King-Mongkut's-University-of-Technology-Thonburi)
+* Rajamangala University of Technology Lanna - [RMUTL](#Rajamangala-University-of-Technology-Lanna)
 * Rangsit University - [RSU](#Rangsit-University)
 * Silpakorn University - [SU](#Silpakorn-University)
-* University of Phayao -[UP](#University-of-Phayao)
-* Chiang Mai University - [CMU](#Chiang-Mai-University)
 * Srinakharinwirot University - [SMU](#Srinakharinwirot-University)
-* Chulalongkorn University - [CU](#Chulalongkorn-University)
-* King Mongkut's University of Technology North Bangkok - [KMUTNB](#King-Mongkut's-University-of-Technology-North-Bangkok)
-* Rajamangala University of Technology Lanna - [RMUTL](#Rajamangala-University-of-Technology-Lanna)
+* Thammasat University - [TU](#Thammasat-University)
+* University of Phayao -[UP](#University-of-Phayao)
 
-## King Mongkut's Institute of Technology Ladkrabang
-- [@wwadfun](https://www.instagram.com/wwadfun/)
 
-## Rangsit University
-- [@nnuunn.i](https://www.instagram.com/nnuunn.i/)
+## Assumption University
+- [@thanyawee_](https://www.instagram.com/thanyawee_/)
 
-## Silpakorn University
-- [@cookpavadee](https://www.instagram.com/cookpavadee/)
-- [@manasaproyy](https://www.instagram.com/manasaproyy/)
+## Bangkok University
+- [@nn.nungnew](https://www.instagram.com/nn.nungnew/)
+- [@pakbungy](https://www.instagram.com/pakbungy/)
+- [@nakapus](https://www.instagram.com/nakapus/)
 
-## University of Phayao
-- [@mingmarry](https://www.instagram.com/mingmarry/)
-
-## Chiang Mai University
-- [@ginygigy](https://www.instagram.com/ginygigy/)
-
-## Srinakharinwirot University
-- [@gadd.de](https://www.instagram.com/gadd.de/)
-- [@olivexree](https://www.instagram.com/olivexree/)
+## Burapha University
+- [@heyt1a](https://www.instagram.com/heyt1a/)
 
 ## Chulalongkorn University
 - [@ps.rinrada](https://www.instagram.com/ps.rinrada/)
 - [@jinnieyy](https://www.instagram.com/jinnieyy/)
+- [@ginkchonticha](https://www.instagram.com/ginkchonticha/)
+- [@mine.jt](https://www.instagram.com/mine.jt/)
+- [@imageswift13](https://www.instagram.com/imageswift13/)
+
+## Chiang Mai University
+- [@ginygigy](https://www.instagram.com/ginygigy/)
+- [@omeorm](https://www.instagram.com/omeorm/)
+
+## King Mongkut's Institute of Technology Ladkrabang
+- [@wwadfun](https://www.instagram.com/wwadfun/)
 
 ## King Mongkut's University of Technology North Bangkok
 - [@nenevader](https://www.instagram.com/nenevader/)
 
+## King Mongkut's University of Technology Thonburi
+- [@thebestory](https://www.instagram.com/thebestory/)
+- [@aimeyeah_](https://www.instagram.com/aimeyeah_/)
+
 ## Rajamangala University of Technology Lanna
 - [@kitty_mook](https://www.instagram.com/kitty_mook/)
+
+## Rangsit University
+- [@nnuunn.i](https://www.instagram.com/nnuunn.i/)
+- [@phaerws](https://www.instagram.com/phaerws/)
+
+## Silpakorn University
+- [@cookpavadee](https://www.instagram.com/cookpavadee/)
+- [@manasaproyy](https://www.instagram.com/manasaproyy/)
+- [@ppprapang](https://www.instagram.com/ppprapang/)
+- [@bamnpa](https://www.instagram.com/bamnpa/)
+- [@yyoyea](https://www.instagram.com/yyoyea/)
+- [@melodybua](https://www.instagram.com/melodybua/)
+- [@mm.e_k](https://www.instagram.com/mm.e_k/)
+- [@lookjunnnn](https://www.instagram.com/lookjunnnn/)
+- [@parn_st](https://www.instagram.com/parn_st/)
+- [@mileoakgardens](https://www.instagram.com/mileoakgardens/)
+
+## Srinakharinwirot University
+- [@gadd.de](https://www.instagram.com/gadd.de/)
+- [@olivexree](https://www.instagram.com/olivexree/)
+- [@ploycharr](https://www.instagram.com/ploycharr/)
+
+## Thammasat University
+- [@bestieliu](https://www.instagram.com/bestieliu/)
+
+## University of Phayao
+- [@mingmarry](https://www.instagram.com/mingmarry/)
 
 -----
 ## Glasses
 - [@wwadfun](https://www.instagram.com/wwadfun/)
+- [@jinnieyy](https://www.instagram.com/jinnieyy/)
+- [@nakapus](https://www.instagram.com/nakapus/)
+- [@mine.jt](https://www.instagram.com/mine.jt/)
+- [@imageswift13](https://www.instagram.com/imageswift13/)
