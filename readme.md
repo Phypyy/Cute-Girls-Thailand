@@ -97,6 +97,7 @@ _This is the list of **Instragram** girls in Thailand. This list will show the c
 
 ## Thammasat University
 - [@bestieliu](https://www.instagram.com/bestieliu/)
+- [@janhae](https://www.instagram.com/janhae/)
 
 ## University of Phayao
 - [@mingmarry](https://www.instagram.com/mingmarry/)
@@ -111,5 +112,6 @@ _This is the list of **Instragram** girls in Thailand. This list will show the c
 - [@morakotl](https://www.instagram.com/morakotl/)
 
 ----
-Conver
+## Extra!
+_Cute girls but still studying at school._
 - [@Kavisara](https://www.instagram.com/perthkvsr/) 
