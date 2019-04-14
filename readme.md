@@ -18,6 +18,7 @@ _This is the list of **Instragram** girls in Thailand. This list will show the c
 * Chulalongkorn University - [CU](#Chulalongkorn-University)
 * Chiang Mai University - [CMU](#Chiang-Mai-University)
 * Civil Aviation Training Center,Thailand - [CATC](#Civil-Aviation-Training-Center,Thailand)
+* Dhurakij Pundit University - [DPU](#Dhurakij-Pundit-University)
 * King Mongkut's Institute of Technology Ladkrabang - [KMITL](#King-Mongkut's-Institute-of-Technology-Ladkrabang)
 * King Mongkut's University of Technology North Bangkok - [KMUTNB](#King-Mongkut's-University-of-Technology-North-Bangkok)
 * King Mongkut's University of Technology Thonburi - [KMUTT](#King-Mongkut's-University-of-Technology-Thonburi)
@@ -26,12 +27,14 @@ _This is the list of **Instragram** girls in Thailand. This list will show the c
 * Siam University - [Su](#Siam-University)
 * Silpakorn University - [SU](#Silpakorn-University)
 * Srinakharinwirot University - [SMU](#Srinakharinwirot-University)
+* Superstar College of Arts  - [SCA](#Superstar-College-of-Arts)
 * Thammasat University - [TU](#Thammasat-University)
 * University of Phayao - [UP](#University-of-Phayao)
 
 
 ## Assumption University
 - [@thanyawee_](https://www.instagram.com/thanyawee_/) :boom:
+- [@beambeam.feverth](https://www.instagram.com/beambeam.feverth/) :eyeglasses:
 
 ## Bangkok University
 - [@nn.nungnew](https://www.instagram.com/nn.nungnew/)
@@ -40,6 +43,7 @@ _This is the list of **Instragram** girls in Thailand. This list will show the c
 
 ## Burapha University
 - [@heyt1a](https://www.instagram.com/heyt1a/)
+- [@aumitkm](https://www.instagram.com/aumitkm/)
 
 ## Chulalongkorn University
 - [@ps.rinrada](https://www.instagram.com/ps.rinrada/)
@@ -55,6 +59,9 @@ _This is the list of **Instragram** girls in Thailand. This list will show the c
 
 ## Civil Aviation Training Center,Thailand
 - [@noon_sutthipha](https://www.instagram.com/noon_sutthipha/)
+
+## Dhurakij Pundit University
+- [@nanwhale](https://www.instagram.com/nanwhale/) :eyeglasses:
 
 ## King Mongkut's Institute of Technology Ladkrabang
 - [@wwadfun](https://www.instagram.com/wwadfun/) :eyeglasses:
@@ -94,6 +101,10 @@ _This is the list of **Instragram** girls in Thailand. This list will show the c
 - [@olivexree](https://www.instagram.com/olivexree/)
 - [@ploycharr](https://www.instagram.com/ploycharr/)
 - [@toeyjarinporn](https://www.instagram.com/toeyjarinporn/)
+- [@lalieye](https://www.instagram.com/lalieye/)
+
+## Superstar College of Arts 
+- [@smile.parada](https://www.instagram.com/smile.parada/) :eyeglasses:
 
 ## Thammasat University
 - [@bestieliu](https://www.instagram.com/bestieliu/)
@@ -110,6 +121,9 @@ _This is the list of **Instragram** girls in Thailand. This list will show the c
 - [@mine.jt](https://www.instagram.com/mine.jt/)
 - [@imageswift13](https://www.instagram.com/imageswift13/)
 - [@morakotl](https://www.instagram.com/morakotl/)
+- [@smile.parada](https://www.instagram.com/smile.parada/)
+- [@nanwhale](https://www.instagram.com/nanwhale/)
+- [@beambeam.feverth](https://www.instagram.com/beambeam.feverth/)
 
 ----
 ## Extra!
