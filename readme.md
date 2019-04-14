@@ -45,8 +45,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 
 ## Burapha University
 - Sirikwan Thinon : [@heyt1a](https://www.instagram.com/heyt1a/)
-- 
-Aum Itthikamonlert : [@aumitkm](https://www.instagram.com/aumitkm/) :fire:
+- Aum Itthikamonlert : [@aumitkm](https://www.instagram.com/aumitkm/) :fire:
 
 ## Chulalongkorn University
 - Rinrada : [@ps.rinrada](https://www.instagram.com/ps.rinrada/) 
@@ -58,8 +57,7 @@ Aum Itthikamonlert : [@aumitkm](https://www.instagram.com/aumitkm/) :fire:
 
 ## Chiang Mai University
 - Jinierinsine Kampeera : [@ginygigy](https://www.instagram.com/ginygigy/) :fire:
-- 
-Supitcha Limsommut : [@omeorm](https://www.instagram.com/omeorm/) :triangular_flag_on_post:
+- Supitcha Limsommut : [@omeorm](https://www.instagram.com/omeorm/) :triangular_flag_on_post:
 
 ## Civil Aviation Training Center,Thailand
 - Noon Sutthipha : [@noon_sutthipha](https://www.instagram.com/noon_sutthipha/) :fire::fire:
@@ -75,8 +73,7 @@ Supitcha Limsommut : [@omeorm](https://www.instagram.com/omeorm/) :triangular_fl
 
 ## King Mongkut's University of Technology Thonburi
 - Boonyanut Kamonchaiwanich : [@thebestory](https://www.instagram.com/thebestory/) :triangular_flag_on_post:
-- 
-Aime Yeah : [@aimeyeah_](https://www.instagram.com/aimeyeah_/) :fire:
+- Aime Yeah : [@aimeyeah_](https://www.instagram.com/aimeyeah_/) :fire:
 
 ## Rajamangala University of Technology Lanna
 - [@kitty_mook](https://www.instagram.com/kitty_mook/) 
