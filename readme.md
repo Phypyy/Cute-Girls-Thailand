@@ -1,4 +1,4 @@
-# Cute Girl Thailand 
+# Cute Girls Thailand 
 
 - [University](#University)
 - [Glasses](#Glasses) 
