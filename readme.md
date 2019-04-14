@@ -103,7 +103,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - [@olivexree](https://www.instagram.com/olivexree/)
 - [@ploycharr](https://www.instagram.com/ploycharr/)
 - [@toeyjarinporn](https://www.instagram.com/toeyjarinporn/)
-- [@lalieye](https://www.instagram.com/lalieye/)
+- [@lalieye](https://www.instagram.com/lalieye/) : Lalita Boon
 
 ## Superstar College of Arts 
 - [@smile.parada](https://www.instagram.com/smile.parada/) :eyeglasses:
