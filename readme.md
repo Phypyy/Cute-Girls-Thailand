@@ -4,10 +4,10 @@ _This is the list of **Instragram** girls in Thailand. This list will show the c
 - [University](#University)
 - [Glasses](#Glasses) :eyeglasses:
 
-Recommend = :triangular_flag_on_post:
-Follower > 10k = :fire:
-Follower > 100k = :fire::fire:
-Follower > 300k = :boom:
+- Recommend = :triangular_flag_on_post:
+- Follower > 10k = :fire:
+- Follower > 100k = :fire::fire:
+- Follower > 300k = :boom:
 
 -----
 ## University
