@@ -35,85 +35,88 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 
 
 ## Assumption University
-- [@thanyawee_](https://www.instagram.com/thanyawee_/) :boom::triangular_flag_on_post:
-- [@beambeam.feverth](https://www.instagram.com/beambeam.feverth/) :eyeglasses:
+- Meimei thanyawee : [@thanyawee_](https://www.instagram.com/thanyawee_/) :boom::triangular_flag_on_post:
+- BeamBeam FEVER : [@beambeam.feverth](https://www.instagram.com/beambeam.feverth/) :eyeglasses:
 
 ## Bangkok University
-- [@nn.nungnew](https://www.instagram.com/nn.nungnew/) :fire::triangular_flag_on_post:
-- [@pakbungy](https://www.instagram.com/pakbungy/)
-- [@nakapus](https://www.instagram.com/nakapus/) :fire::fire::eyeglasses::triangular_flag_on_post:
+- Nichakarn Methmutha : [@nn.nungnew](https://www.instagram.com/nn.nungnew/) :fire::triangular_flag_on_post:
+- Yada Rakangthong : [@pakbungy](https://www.instagram.com/pakbungy/)
+- Supakan Benjaarruk : [@nakapus](https://www.instagram.com/nakapus/) :fire::fire::eyeglasses::triangular_flag_on_post:
 
 ## Burapha University
-- [@heyt1a](https://www.instagram.com/heyt1a/)
-- [@aumitkm](https://www.instagram.com/aumitkm/) :fire:
+- Sirikwan Thinon : [@heyt1a](https://www.instagram.com/heyt1a/)
+- 
+Aum Itthikamonlert : [@aumitkm](https://www.instagram.com/aumitkm/) :fire:
 
 ## Chulalongkorn University
-- [@ps.rinrada](https://www.instagram.com/ps.rinrada/) 
-- [@jinnieyy](https://www.instagram.com/jinnieyy/) :eyeglasses:
+- Rinrada : [@ps.rinrada](https://www.instagram.com/ps.rinrada/) 
+- She not have facebook but you can find her in นักการเมืองน่ารักบอกต่อด้วย : [@jinnieyy](https://www.instagram.com/jinnieyy/) :eyeglasses:
 - [@ginkchonticha](https://www.instagram.com/ginkchonticha/)
 - [@mine.jt](https://www.instagram.com/mine.jt/) :eyeglasses:
-- [@imageswift13](https://www.instagram.com/imageswift13/) :fire::fire::eyeglasses:
-- [@inkwaruntorn](https://www.instagram.com/inkwaruntorn/) :fire::triangular_flag_on_post:
+- Image Suthita : [@imageswift13](https://www.instagram.com/imageswift13/) :fire::fire::eyeglasses:
+- Ink Waruntorn : [@inkwaruntorn](https://www.instagram.com/inkwaruntorn/) :fire::triangular_flag_on_post:
 
 ## Chiang Mai University
-- [@ginygigy](https://www.instagram.com/ginygigy/) :fire:
-- [@omeorm](https://www.instagram.com/omeorm/) :triangular_flag_on_post:
+- Jinierinsine Kampeera : [@ginygigy](https://www.instagram.com/ginygigy/) :fire:
+- 
+Supitcha Limsommut : [@omeorm](https://www.instagram.com/omeorm/) :triangular_flag_on_post:
 
 ## Civil Aviation Training Center,Thailand
-- [@noon_sutthipha](https://www.instagram.com/noon_sutthipha/) :fire::fire:
+- Noon Sutthipha : [@noon_sutthipha](https://www.instagram.com/noon_sutthipha/) :fire::fire:
 
 ## Dhurakij Pundit University
-- [@nanwhale](https://www.instagram.com/nanwhale/) :fire::eyeglasses::triangular_flag_on_post:
+- Nan : [@nanwhale](https://www.instagram.com/nanwhale/) :fire::eyeglasses::triangular_flag_on_post:
 
 ## King Mongkut's Institute of Technology Ladkrabang
-- [@wwadfun](https://www.instagram.com/wwadfun/) :eyeglasses:
+- Wadfun Menayotin : [@wwadfun](https://www.instagram.com/wwadfun/) :eyeglasses:
 
 ## King Mongkut's University of Technology North Bangkok
-- [@nenevader](https://www.instagram.com/nenevader/) :fire::fire:
+- เนเน่ ねね : [@nenevader](https://www.instagram.com/nenevader/) :fire::fire:
 
 ## King Mongkut's University of Technology Thonburi
-- [@thebestory](https://www.instagram.com/thebestory/) :triangular_flag_on_post:
-- [@aimeyeah_](https://www.instagram.com/aimeyeah_/) :fire:
+- Boonyanut Kamonchaiwanich : [@thebestory](https://www.instagram.com/thebestory/) :triangular_flag_on_post:
+- 
+Aime Yeah : [@aimeyeah_](https://www.instagram.com/aimeyeah_/) :fire:
 
 ## Rajamangala University of Technology Lanna
 - [@kitty_mook](https://www.instagram.com/kitty_mook/) 
 
 ## Rangsit University
-- [@nnuunn.i](https://www.instagram.com/nnuunn.i/) :fire:
+- Nun Gaia : [@nnuunn.i](https://www.instagram.com/nnuunn.i/) :fire:
 - [@phaerws](https://www.instagram.com/phaerws/) :fire::fire:
 
 ## Siam University
-- [@kaimuk.cmcafe](https://www.instagram.com/kaimuk.cmcafe/) :fire::fire::triangular_flag_on_post:
+- ムック ♡ (น้องไข่) : [@kaimuk.cmcafe](https://www.instagram.com/kaimuk.cmcafe/) :fire::fire::triangular_flag_on_post:
 
 ## Silpakorn University
-- [@cookpavadee](https://www.instagram.com/cookpavadee/) :fire::fire:
-- [@manasaproyy](https://www.instagram.com/manasaproyy/) :fire::fire:
-- [@ppprapang](https://www.instagram.com/ppprapang/) :fire::triangular_flag_on_post:
-- [@bamnpa](https://www.instagram.com/bamnpa/)
-- [@yyoyea](https://www.instagram.com/yyoyea/)
-- [@melodybua](https://www.instagram.com/melodybua/)
-- [@mm.e_k](https://www.instagram.com/mm.e_k/)
-- [@lookjunnnn](https://www.instagram.com/lookjunnnn/)
-- [@parn_st](https://www.instagram.com/parn_st/)
-- [@mileoakgardens](https://www.instagram.com/mileoakgardens/)
-- [@morakotl](https://www.instagram.com/morakotl/) :fire::eyeglasses:
+- Pavadee Komchokpaisan : [@cookpavadee](https://www.instagram.com/cookpavadee/) :fire::fire:
+- Manasaporn Chanchalerm : [@manasaproyy](https://www.instagram.com/manasaproyy/) :fire::fire:
+- Jantanadda Attawibool : [@ppprapang](https://www.instagram.com/ppprapang/) :fire::triangular_flag_on_post:
+- Napa Wik. : [@bamnpa](https://www.instagram.com/bamnpa/)
+- ยยยย : [@yyoyea](https://www.instagram.com/yyoyea/)
+- LOTUS97 : [@melodybua](https://www.instagram.com/melodybua/)
+- ANGKANA : [@mm.e_k](https://www.instagram.com/mm.e_k/)
+- ลูกจัน : [@lookjunnnn](https://www.instagram.com/lookjunnnn/)
+- Parn : [@parn_st](https://www.instagram.com/parn_st/)
+- 𝐌𝐢𝐥𝐞 : [@mileoakgardens](https://www.instagram.com/mileoakgardens/)
+- ต้นหลิว มรกต : [@morakotl](https://www.instagram.com/morakotl/) :fire::eyeglasses:
 
 ## Srinakharinwirot University
-- [@gadd.de](https://www.instagram.com/gadd.de/) :fire::fire:
-- [@olivexree](https://www.instagram.com/olivexree/) :triangular_flag_on_post:
-- [@ploycharr](https://www.instagram.com/ploycharr/)
-- [@toeyjarinporn](https://www.instagram.com/toeyjarinporn/) :boom:
+- 𝐿𝑒𝑒, 𝑔 : [@gadd.de](https://www.instagram.com/gadd.de/) :fire::fire:
+- Olive Thitichaya : [@olivexree](https://www.instagram.com/olivexree/) :triangular_flag_on_post:
+- Ploy R. Charnchanayotin : [@ploycharr](https://www.instagram.com/ploycharr/)
+- Jarinporn J. : [@toeyjarinporn](https://www.instagram.com/toeyjarinporn/) :boom:
 - Lalita Boon : [@lalieye](https://www.instagram.com/lalieye/) :fire:
 
 ## Superstar College of Arts 
-- [@smile.parada](https://www.instagram.com/smile.parada/) :fire::fire::eyeglasses:
+- Smile Parada : [@smile.parada](https://www.instagram.com/smile.parada/) :fire::fire::eyeglasses:
 
 ## Thammasat University
-- [@bestieliu](https://www.instagram.com/bestieliu/) :fire:
-- [@janhae](https://www.instagram.com/janhae/) :fire::fire:
+- Bestie Chairungroj : [@bestieliu](https://www.instagram.com/bestieliu/) :fire:
+- Jan Ployshompoo : [@janhae](https://www.instagram.com/janhae/) :fire::fire:
 
 ## University of Phayao
-- [@mingmarry](https://www.instagram.com/mingmarry/) :fire:
+- นภสร แก้ววิชิต | ming : [@mingmarry](https://www.instagram.com/mingmarry/) :fire:
 
 -----
 ## Glasses
@@ -130,5 +133,5 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 ----
 ## Extra!
 _Cute girls but still studying at school._
-- [@Kavisara](https://www.instagram.com/perthkvsr/) :fire::fire:
-- [@lookkaewjrw](https://www.instagram.com/lookkaewjrw/) :fire:
+- Kavisara : [@Kavisara](https://www.instagram.com/perthkvsr/) :fire::fire:
+- Jirawan Lamsam : [@lookkaewjrw](https://www.instagram.com/lookkaewjrw/) :fire:
