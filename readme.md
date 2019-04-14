@@ -19,7 +19,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 * Burapha University - [BUU](#Burapha-University)
 * Chulalongkorn University - [CU](#Chulalongkorn-University)
 * Chiang Mai University - [CMU](#Chiang-Mai-University)
-* Civil Aviation Training Center,Thailand - [CATC](#Civil-Aviation-Training-Center,Thailand)
+* Civil Aviation Training Center,Thailand - [CATC](#Civil-Aviation-Training-Center)
 * Dhurakij Pundit University - [DPU](#Dhurakij-Pundit-University)
 * King Mongkut's Institute of Technology Ladkrabang - [KMITL](#King-Mongkut's-Institute-of-Technology-Ladkrabang)
 * King Mongkut's University of Technology North Bangkok - [KMUTNB](#King-Mongkut's-University-of-Technology-North-Bangkok)
@@ -59,7 +59,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - Jinierinsine Kampeera : [@ginygigy](https://www.instagram.com/ginygigy/) :fire:
 - Supitcha Limsommut : [@omeorm](https://www.instagram.com/omeorm/) :triangular_flag_on_post:
 
-## Civil Aviation Training Center,Thailand
+## Civil Aviation Training Center
 - Noon Sutthipha : [@noon_sutthipha](https://www.instagram.com/noon_sutthipha/) :fire::fire:
 
 ## Dhurakij Pundit University
