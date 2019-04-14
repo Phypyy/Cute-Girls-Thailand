@@ -21,9 +21,9 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 * Chiang Mai University - [CMU](#Chiang-Mai-University)
 * Civil Aviation Training Center,Thailand - [CATC](#Civil-Aviation-Training-Center)
 * Dhurakij Pundit University - [DPU](#Dhurakij-Pundit-University)
-* King Mongkut's Institute of Technology Ladkrabang - [KMITL](#King-Mongkut's-Institute-of-Technology-Ladkrabang)
-* King Mongkut's University of Technology North Bangkok - [KMUTNB](#King-Mongkut's-University-of-Technology-North-Bangkok)
-* King Mongkut's University of Technology Thonburi - [KMUTT](#King-Mongkut's-University-of-Technology-Thonburi)
+* King Mongkut's Institute of Technology Ladkrabang - [KMITL](#King-Mongkut-Institute-of-Technology-Ladkrabang)
+* King Mongkut's University of Technology North Bangkok - [KMUTNB](#King-Mongkut-University-of-Technology-North-Bangkok)
+* King Mongkut's University of Technology Thonburi - [KMUTT](#King-Mongkut-University-of-Technology-Thonburi)
 * Rajamangala University of Technology Lanna - [RMUTL](#Rajamangala-University-of-Technology-Lanna)
 * Rangsit University - [RSU](#Rangsit-University)
 * Siam University - [Su](#Siam-University)
@@ -65,13 +65,13 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 ## Dhurakij Pundit University
 - Nan : [@nanwhale](https://www.instagram.com/nanwhale/) :fire::eyeglasses::triangular_flag_on_post:
 
-## King Mongkut's Institute of Technology Ladkrabang
+## King Mongkut Institute of Technology Ladkrabang
 - Wadfun Menayotin : [@wwadfun](https://www.instagram.com/wwadfun/) :eyeglasses:
 
-## King Mongkut's University of Technology North Bangkok
+## King Mongkut University of Technology North Bangkok
 - เนเน่ ねね : [@nenevader](https://www.instagram.com/nenevader/) :fire::fire:
 
-## King Mongkut's University of Technology Thonburi
+## King Mongkut University of Technology Thonburi
 - Boonyanut Kamonchaiwanich : [@thebestory](https://www.instagram.com/thebestory/) :triangular_flag_on_post:
 - Aime Yeah : [@aimeyeah_](https://www.instagram.com/aimeyeah_/) :fire:
 
