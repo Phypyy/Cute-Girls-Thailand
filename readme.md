@@ -1,7 +1,8 @@
 # Cute Girls Thailand 
+_This is the list of **Instragram** girls in Thailand. This list will show the cute girls I have chosen(Only University girl). So some people may not be cute for you. But for me, These girls are considered cute. In the list, I have show the main category is the university and the glasses girls ._
 
 - [University](#University)
-- [Glasses](#Glasses) 
+- [Glasses](#Glasses) :eyeglasses:
 
 -----
 ## University
@@ -18,7 +19,7 @@
 * Silpakorn University - [SU](#Silpakorn-University)
 * Srinakharinwirot University - [SMU](#Srinakharinwirot-University)
 * Thammasat University - [TU](#Thammasat-University)
-* University of Phayao -[UP](#University-of-Phayao)
+* University of Phayao - [UP](#University-of-Phayao)
 
 
 ## Assumption University
