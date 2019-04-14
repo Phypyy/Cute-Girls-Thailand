@@ -1,13 +1,13 @@
 # Cute Girls Thailand 
-_This is the list of **Instragram** girls in Thailand. This list will show the cute girls I have chosen(Only University girl). So some people may not be cute for you. But for me, These girls are considered cute. In the list, I have show the main category is the university and the glasses girls ._
+_This is the list of **Instragram** girls in Thailand. This list will show the cute girls I have chosen(Only University girl). So some people may not be cute for you. But for me, These girls are considered cute. In the list, I have show the main category is the university and the glasses girls . In addition, I use emoji to show people I recommend, followers more than 10k, 100k, 300k_
 
 - [University](#University)
 - [Glasses](#Glasses) :eyeglasses:
 
-:triangular_flag_on_post: -> Recommend.
-:fire: -> Follower > 10k
-:fire::fire: -> Follower >100k
-:boom: -> Follower > 300k
+...:triangular_flag_on_post: -> Recommend.
+...:fire: -> Follower > 10k
+...:fire::fire: -> Follower >100k
+...:boom: -> Follower > 300k
 
 -----
 ## University
