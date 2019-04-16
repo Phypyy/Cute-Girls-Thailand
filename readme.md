@@ -54,6 +54,8 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - [@mine.jt](https://www.instagram.com/mine.jt/) :eyeglasses:
 - Image Suthita : [@imageswift13](https://www.instagram.com/imageswift13/) :fire::fire::eyeglasses:
 - Ink Waruntorn : [@inkwaruntorn](https://www.instagram.com/inkwaruntorn/) :fire::triangular_flag_on_post:
+- Nink Chanyanuch : [@ninkha](https://www.instagram.com/ninkha/)
+- Kampirada Kijpisit : [@nicnnice](https://www.instagram.com/nicnnice/)
 
 ## Chiang Mai University
 - Jinierinsine Kampeera : [@ginygigy](https://www.instagram.com/ginygigy/) :fire:
@@ -97,6 +99,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - Parn : [@parn_st](https://www.instagram.com/parn_st/)
 - 𝐌𝐢𝐥𝐞 : [@mileoakgardens](https://www.instagram.com/mileoakgardens/)
 - ต้นหลิว มรกต : [@morakotl](https://www.instagram.com/morakotl/) :fire::eyeglasses:
+- SOPHISA : [@fongsps](https://www.instagram.com/fongsps/)
 
 ## Srinakharinwirot University
 - 𝐿𝑒𝑒, 𝑔 : [@gadd.de](https://www.instagram.com/gadd.de/) :fire::fire:
