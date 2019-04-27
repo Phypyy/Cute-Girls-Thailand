@@ -58,8 +58,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - Ink Waruntorn : [@inkwaruntorn](https://www.instagram.com/inkwaruntorn/) :fire::triangular_flag_on_post:
 - Nink Chanyanuch : [@ninkha](https://www.instagram.com/ninkha/)
 - Kampirada Kijpisit : [@nicnnice](https://www.instagram.com/nicnnice/)
-- Prim N. : [toeyprim](https://www.instagram.com/toeyprim/) :fire:
-- Kampirada Kijpisit : [nicnnice](https://www.instagram.com/nicnnice/)
+- Prim N. : [@toeyprim](https://www.instagram.com/toeyprim/) :fire:
 
 ## Chiang Mai University
 - Jinierinsine Kampeera : [@ginygigy](https://www.instagram.com/ginygigy/) :fire:
@@ -85,8 +84,8 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - Aime Yeah : [@aimeyeah_](https://www.instagram.com/aimeyeah_/) :fire:
 
 ## Kasetsart University
-- Purewarin Kosiriwalanon : [purepwr.g](https://www.instagram.com/purepwr.g/) :fire::fire:
-- Isaree Kongken Pang : [pang_isaree](https://www.instagram.com/pang_isaree/)
+- Purewarin Kosiriwalanon : [@purepwr.g](https://www.instagram.com/purepwr.g/) :fire::fire:
+- Isaree Kongken Pang : [@pang_isaree](https://www.instagram.com/pang_isaree/)
 
 ## Rajamangala University of Technology Lanna
 - [@kitty_mook](https://www.instagram.com/kitty_mook/) 
@@ -111,6 +110,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - 𝐌𝐢𝐥𝐞 : [@mileoakgardens](https://www.instagram.com/mileoakgardens/)
 - ต้นหลิว มรกต : [@morakotl](https://www.instagram.com/morakotl/) :fire::eyeglasses:
 - SOPHISA : [@fongsps](https://www.instagram.com/fongsps/)
+- fai : [@fsupii](https://www.instagram.com/fsupii/)
 
 ## Srinakharinwirot University
 - 𝐿𝑒𝑒, 𝑔 : [@gadd.de](https://www.instagram.com/gadd.de/) :fire::fire:
