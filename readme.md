@@ -21,9 +21,11 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 * Chiang Mai University - [CMU](#Chiang-Mai-University)
 * Civil Aviation Training Center,Thailand - [CATC](#Civil-Aviation-Training-Center)
 * Dhurakij Pundit University - [DPU](#Dhurakij-Pundit-University)
+* Khon Kaen University - [KKU](#Khon-Kaen-University)
 * King Mongkut's Institute of Technology Ladkrabang - [KMITL](#King-Mongkut-Institute-of-Technology-Ladkrabang)
 * King Mongkut's University of Technology North Bangkok - [KMUTNB](#King-Mongkut-University-of-Technology-North-Bangkok)
 * King Mongkut's University of Technology Thonburi - [KMUTT](#King-Mongkut-University-of-Technology-Thonburi)
+* Kasetsart University - [KU](#Kasetsart-University)
 * Rajamangala University of Technology Lanna - [RMUTL](#Rajamangala-University-of-Technology-Lanna)
 * Rangsit University - [RSU](#Rangsit-University)
 * Siam University - [Su](#Siam-University)
@@ -49,13 +51,15 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 
 ## Chulalongkorn University
 - Rinrada : [@ps.rinrada](https://www.instagram.com/ps.rinrada/) 
-- She not have facebook but you can find her in นักการเมืองน่ารักบอกต่อด้วย : [@jinnieyy](https://www.instagram.com/jinnieyy/) :eyeglasses:
+- น้องเจนนี่ : [@jinnieyy](https://www.instagram.com/jinnieyy/) :eyeglasses:
 - [@ginkchonticha](https://www.instagram.com/ginkchonticha/)
 - [@mine.jt](https://www.instagram.com/mine.jt/) :eyeglasses:
 - Image Suthita : [@imageswift13](https://www.instagram.com/imageswift13/) :fire::fire::eyeglasses:
 - Ink Waruntorn : [@inkwaruntorn](https://www.instagram.com/inkwaruntorn/) :fire::triangular_flag_on_post:
 - Nink Chanyanuch : [@ninkha](https://www.instagram.com/ninkha/)
 - Kampirada Kijpisit : [@nicnnice](https://www.instagram.com/nicnnice/)
+- Prim N. : [toeyprim](https://www.instagram.com/toeyprim/) :fire:
+- Kampirada Kijpisit : [nicnnice](https://www.instagram.com/nicnnice/)
 
 ## Chiang Mai University
 - Jinierinsine Kampeera : [@ginygigy](https://www.instagram.com/ginygigy/) :fire:
@@ -67,6 +71,9 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 ## Dhurakij Pundit University
 - Nan : [@nanwhale](https://www.instagram.com/nanwhale/) :fire::eyeglasses::triangular_flag_on_post:
 
+## Khon Kaen University
+- Thanyarus Akkharahirunsakul : [gigiggy](https://www.instagram.com/gigiggy/) :fire:
+
 ## King Mongkut Institute of Technology Ladkrabang
 - Wadfun Menayotin : [@wwadfun](https://www.instagram.com/wwadfun/) :eyeglasses:
 
@@ -76,6 +83,10 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 ## King Mongkut University of Technology Thonburi
 - Boonyanut Kamonchaiwanich : [@thebestory](https://www.instagram.com/thebestory/) :triangular_flag_on_post:
 - Aime Yeah : [@aimeyeah_](https://www.instagram.com/aimeyeah_/) :fire:
+
+## Kasetsart University
+- Purewarin Kosiriwalanon : [purepwr.g](https://www.instagram.com/purepwr.g/) :fire::fire:
+- Isaree Kongken Pang : [pang_isaree](https://www.instagram.com/pang_isaree/)
 
 ## Rajamangala University of Technology Lanna
 - [@kitty_mook](https://www.instagram.com/kitty_mook/) 
