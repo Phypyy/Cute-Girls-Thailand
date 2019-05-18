@@ -126,7 +126,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - Bestie Chairungroj : [@bestieliu](https://www.instagram.com/bestieliu/) :fire:
 - Jan Ployshompoo : [@janhae](https://www.instagram.com/janhae/) :fire::fire:
 - Jelly Namjai : [@jjellyjelly](https://www.instagram.com/jjellyjelly/)
--민니 (丞星) : [@minniemynl](https://www.instagram.com/minniemynl/)
+- 민니 (丞星) : [@minniemynl](https://www.instagram.com/minniemynl/)
 
 
 ## University of Phayao
