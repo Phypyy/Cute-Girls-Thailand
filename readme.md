@@ -34,6 +34,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 * Superstar College of Arts  - [SCA](#Superstar-College-of-Arts)
 * Thammasat University - [TU](#Thammasat-University)
 * University of Phayao - [UP](#University-of-Phayao)
+* University of Thai Chamber of Commerce - [UTCC](#University-of-Thai-Chamber-of-Commerce)
 
 
 ## Assumption University
@@ -71,7 +72,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - Nan : [@nanwhale](https://www.instagram.com/nanwhale/) :fire::eyeglasses::triangular_flag_on_post:
 
 ## Khon Kaen University
-- Thanyarus Akkharahirunsakul : [gigiggy](https://www.instagram.com/gigiggy/) :fire:
+- Thanyarus Akkharahirunsakul : [@gigiggy](https://www.instagram.com/gigiggy/) :fire:
 
 ## King Mongkut Institute of Technology Ladkrabang
 - Wadfun Menayotin : [@wwadfun](https://www.instagram.com/wwadfun/) :eyeglasses:
@@ -88,11 +89,11 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - Isaree Kongken Pang : [@pang_isaree](https://www.instagram.com/pang_isaree/)
 
 ## Rajamangala University of Technology Lanna
-- [@kitty_mook](https://www.instagram.com/kitty_mook/) 
+- Pakinee Mook : [@kitty_mook](https://www.instagram.com/kitty_mook/) 
 
 ## Rangsit University
 - Nun Gaia : [@nnuunn.i](https://www.instagram.com/nnuunn.i/) :fire:
-- [@phaerws](https://www.instagram.com/phaerws/) :fire::fire:
+- Phaerw Sataporn : [@phaerws](https://www.instagram.com/phaerws/) :fire::fire:
 
 ## Siam University
 - ムック ♡ (น้องไข่) : [@kaimuk.cmcafe](https://www.instagram.com/kaimuk.cmcafe/) :fire::fire::triangular_flag_on_post:
@@ -111,6 +112,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - ต้นหลิว มรกต : [@morakotl](https://www.instagram.com/morakotl/) :fire::eyeglasses:
 - SOPHISA : [@fongsps](https://www.instagram.com/fongsps/)
 - fai : [@fsupii](https://www.instagram.com/fsupii/)
+- NAMIN : [@preawnamin](https://www.instagram.com/preawnamin/)
 
 ## Srinakharinwirot University
 - 𝐿𝑒𝑒, 𝑔 : [@gadd.de](https://www.instagram.com/gadd.de/) :fire::fire:
@@ -125,9 +127,11 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 ## Thammasat University
 - Bestie Chairungroj : [@bestieliu](https://www.instagram.com/bestieliu/) :fire:
 - Jan Ployshompoo : [@janhae](https://www.instagram.com/janhae/) :fire::fire:
-- Jelly Namjai : [@jjellyjelly](https://www.instagram.com/jjellyjelly/)
-- 민니 (丞星) : [@minniemynl](https://www.instagram.com/minniemynl/)
+- Jelly Namjai : [@jjellyjelly](https://www.instagram.com/jjellyjelly/) :fire:
+- 민니 (丞星) : [@minniemynl](https://www.instagram.com/minniemynl/) :fire:
 
+## University of Thai Chamber of Commerce
+- 소라 (Sora) : [@miewsora](https://www.instagram.com/miewsora/)
 
 ## University of Phayao
 - นภสร แก้ววิชิต | ming : [@mingmarry](https://www.instagram.com/mingmarry/) :fire:
