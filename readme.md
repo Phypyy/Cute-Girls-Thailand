@@ -83,6 +83,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 ## King Mongkut University of Technology Thonburi
 - Boonyanut Kamonchaiwanich : [@thebestory](https://www.instagram.com/thebestory/) :triangular_flag_on_post:
 - Aime Yeah : [@aimeyeah_](https://www.instagram.com/aimeyeah_/) :fire:
+- Fai : [@ansr.f](https://www.instagram.com/ansr.f/)
 
 ## Kasetsart University
 - Purewarin Kosiriwalanon : [@purepwr.g](https://www.instagram.com/purepwr.g/) :fire::fire:
