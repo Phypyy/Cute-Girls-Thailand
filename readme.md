@@ -88,6 +88,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 ## Kasetsart University
 - Purewarin Kosiriwalanon : [@purepwr.g](https://www.instagram.com/purepwr.g/) :fire::fire:
 - Isaree Kongken Pang : [@pang_isaree](https://www.instagram.com/pang_isaree/)
+- vitarin : [@vitarin_](https://www.instagram.com/vitarin_/)
 
 ## Rajamangala University of Technology Lanna
 - Pakinee Mook : [@kitty_mook](https://www.instagram.com/kitty_mook/) 
@@ -114,6 +115,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - SOPHISA : [@fongsps](https://www.instagram.com/fongsps/)
 - fai : [@fsupii](https://www.instagram.com/fsupii/)
 - NAMIN : [@preawnamin](https://www.instagram.com/preawnamin/)
+- PARKARD : [@pkvicx](https://www.instagram.com/pkvicx/) :fire:
 
 ## Srinakharinwirot University
 - 𝐿𝑒𝑒, 𝑔 : [@gadd.de](https://www.instagram.com/gadd.de/) :fire::fire:
@@ -154,3 +156,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 _Cute girls but still studying at school._
 - Kavisara : [@Kavisara](https://www.instagram.com/perthkvsr/) :fire::fire:
 - Jirawan Lamsam : [@lookkaewjrw](https://www.instagram.com/lookkaewjrw/) :fire:
+
+----
+## Unknow (If I find universicity or school I will add her to list next time.)
+- pearpear prasitchaiporn : [@perrypearpear](https://www.instagram.com/perrypearpear/) fire::fire:
