@@ -11,6 +11,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 ## category
 - [University](#University)
 - [Glasses](#Glasses) :eyeglasses:
+- [Unknow](#Unknow)
 
 -----
 ## University
@@ -35,6 +36,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 * Thammasat University - [TU](#Thammasat-University)
 * University of Phayao - [UP](#University-of-Phayao)
 * University of Thai Chamber of Commerce - [UTCC](#University-of-Thai-Chamber-of-Commerce)
+
 
 
 ## Assumption University
@@ -158,5 +160,6 @@ _Cute girls but still studying at school._
 - Jirawan Lamsam : [@lookkaewjrw](https://www.instagram.com/lookkaewjrw/) :fire:
 
 ----
-## Unknow (If I find universicity or school I will add her to list next time.)
+## Unknow 
+_If I find university or school I will add her to list next time.
 - pearpear prasitchaiporn : [@perrypearpear](https://www.instagram.com/perrypearpear/) fire::fire:
