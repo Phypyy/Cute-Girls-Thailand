@@ -27,6 +27,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 * King Mongkut's University of Technology North Bangkok - [KMUTNB](#King-Mongkut-University-of-Technology-North-Bangkok)
 * King Mongkut's University of Technology Thonburi - [KMUTT](#King-Mongkut-University-of-Technology-Thonburi)
 * Kasetsart University - [KU](#Kasetsart-University)
+* Mahidol University - [MU](#Mahidol-University)
 * Rajamangala University of Technology Lanna - [RMUTL](#Rajamangala-University-of-Technology-Lanna)
 * Rangsit University - [RSU](#Rangsit-University)
 * Siam University - [Su](#Siam-University)
@@ -92,6 +93,9 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - Isaree Kongken Pang : [@pang_isaree](https://www.instagram.com/pang_isaree/)
 - vitarin : [@vitarin_](https://www.instagram.com/vitarin_/)
 
+## Mahidol University
+- 𝑭𝒂𝒉 𝑳𝒐𝒚𝒘𝒆𝒉𝒂 : [@fahloyweha](https://www.instagram.com/fahloyweha/)
+
 ## Rajamangala University of Technology Lanna
 - Pakinee Mook : [@kitty_mook](https://www.instagram.com/kitty_mook/) 
 
@@ -134,6 +138,7 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - Jan Ployshompoo : [@janhae](https://www.instagram.com/janhae/) :fire::fire:
 - Jelly Namjai : [@jjellyjelly](https://www.instagram.com/jjellyjelly/) :fire:
 - 민니 (丞星) : [@minniemynl](https://www.instagram.com/minniemynl/) :fire:
+- Papimon Navanich : [@ihate.game](https://www.instagram.com/ihate.game/)
 
 ## University of Thai Chamber of Commerce
 - 소라 (Sora) : [@miewsora](https://www.instagram.com/miewsora/)
@@ -162,4 +167,4 @@ _Cute girls but still studying at school._
 ----
 ## Unknow 
 _If I find university or school I will add her to list next time._
-- pearpear prasitchaiporn : [@perrypearpear](https://www.instagram.com/perrypearpear/) fire::fire:
+- pearpear prasitchaiporn : [@perrypearpear](https://www.instagram.com/perrypearpear/) :fire::fire:
