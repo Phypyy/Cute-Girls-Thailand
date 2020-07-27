@@ -92,6 +92,9 @@ Thank you, [awesomethaigirlv2](https://github.com/awesomethaigirlv2) for the ins
 - Purewarin Kosiriwalanon : [@purepwr.g](https://www.instagram.com/purepwr.g/) :fire::fire:
 - Isaree Kongken Pang : [@pang_isaree](https://www.instagram.com/pang_isaree/)
 - vitarin : [@vitarin_](https://www.instagram.com/vitarin_/)
+- 𝑵𝒂𝒏𝒏𝒂𝒑𝒂𝒕 𝒀. : [@ppampamn](https://www.instagram.com/ppampamn/)
+- 𝗣𝘂𝗻𝗰𝗵𝗮𝗻𝗶𝘁 𝗝. : [popparyy](https://www.instagram.com/popparyy/)
+- 𝒑𝒊𝒏𝒌𝒑𝒂𝒏|𝒂𝒏𝒚𝒂 : [palmypinkpan](https://www.instagram.com/palmypinkpan/)
 
 ## Mahidol University
 - 𝑭𝒂𝒉 𝑳𝒐𝒚𝒘𝒆𝒉𝒂 : [@fahloyweha](https://www.instagram.com/fahloyweha/)
